@@ -1,2 +1,0 @@
-# Daily-apartments
-Daily apartments
